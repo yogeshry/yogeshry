@@ -25,4 +25,4 @@ Before graduate school I spent nearly five years as a software engineer: single 
 
 ## Contact
 
-ygsh.spcry5@gmail.com · [LinkedIn](https://www.linkedin.com/in/yogeshry)
+ygsh.spcry5@gmail.com · [Website](https://yogeshry.github.io) · [Google Scholar](https://scholar.google.com/citations?user=ViHmwwEAAAAJ) · [LinkedIn](https://www.linkedin.com/in/yogeshry)
